@@ -1,1 +1,1 @@
-# StockDreams-ai-The-Future-of-Visual-Content-Generation-
+# StockDreams-ai-The-Future-of-Visual-Content-Generation
